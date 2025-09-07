@@ -1,0 +1,1 @@
+# AdobeStock-Waala-Metadata
